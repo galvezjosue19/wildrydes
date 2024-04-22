@@ -1,4 +1,5 @@
-![image](https://github.com/galvezjosue19/wildrydes/assets/156706604/6d02a2ca-60cc-4686-ba0b-770336eef658)
+![image](https://github.com/galvezjosue19/wildrydes/assets/156706604/047aa6b1-b2b9-47ff-83c1-b49a6593911b)
+
 
 
 
